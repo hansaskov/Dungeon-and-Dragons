@@ -1,0 +1,5 @@
+The World Maw was discovered 97 years ago by [[Gaven Greyrock]]. Consisting of 5 known levels each consisting of a unique land filled with flora and fauna rarely seen throughout the world. The Maw has been explored for many years to figure out how it appeared and what / if there is a purpose for it. Some theorize that an ancient forgotten god is sleeping at the bottom, while other think it might be a pathway to the earth core. But whatever is at the bottom is powerful since said power reverberates through the maw, and the deeper you go the more powerful it gets.
+
+Layer 1: Paradise A lush jungle filled with flora and fauna rarely seen throughout the world. This area is a treasure-trove for scientists and botanists, due to the biology of this layer. Multiple explorer camps are placed in this layer, where groups of scientists camp to research the flora and fauna located here. Each of [[The four Factions]] have their own camps, both big and small, with the biggest being [[The Edge]] located towards the bottom of [[Paradise]] and is the main way of getting to the second layer of [[The World Maw]]  
+
+Layer 2: ...

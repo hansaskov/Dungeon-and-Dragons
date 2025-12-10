@@ -1,0 +1,3 @@
+At a young age, children undergo a ritual called **The kindling** where they may receive a **Mark of light**, signifying divine favor. Those who receive the mark are often elevated in status, taking roles as clergy, warriors, or scholars. These marks are a sign of pride and power, and the purity of your mark signify the potential that it holds. 
+
+Even though every citizen goes through the ritual, it is rare that a mark is bestowed. And even though it is not entirely known why these marks are given, it is seen as the person being chosen by [[Aurion]]. Most chosen often becoming prominent figures. 

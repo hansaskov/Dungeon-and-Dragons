@@ -1,0 +1,9 @@
+This is the faith found in the Divine continent of [[Lycra]]. It is centered around the dragon god [[Aurion]], who many years ago defeated the [[Ancient god]]. The Religion is followed by every citizen of Lycra. 
+
+The religion is the "law" of this continent, so everyone born here has to follow the religion. The religion is based around a golden radiant dragon titled [[Aurion]]  which in their religion is their protector and saviour since he defended the lands from a dark abyss monster in ancient times. He has not been seen by the citizens in 5000 years, but his words, decrees and blessings are given by the guardians. 
+### Marks of light
+At a young age, children undergo a ritual called **The kindling** where they may receive a **Mark of light**, signifying divine favor. Those who receive the mark are often elevated in status, taking roles as clergy, warriors, or scholars. These marks are a sign of pride and power, and the purity of your mark signify the potential that it holds. 
+
+Even though every citizen goes through the ritual, it is rare that a mark is bestowed. And even though it is not entirely known why these marks are given, it is seen as the person being chosen by [[Aurion]]. Most chosen often becoming prominent figures. 
+### The guardian dragons
+In the Divine Continent of Lycra, the **Guardian Dragons** are not merely emissaries of the dragon god [[Aurion]], they are revered as living deities. Their presence is tangible, and their influence permeates every aspect of society. The guardians are ancient dragons who are said to be his warriors and blood (family) from the time of the war against the monster, and they are now spreading his words and religion throughout the continent, and are ensuring that the lands are safe. Each kingdom/country has at least one guardian, which the high priests directly obey.

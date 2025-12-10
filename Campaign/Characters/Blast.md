@@ -1,0 +1,1 @@
+Owner of the [[Blast's Magic Emporium]] located in [[Ashenknots]]. 

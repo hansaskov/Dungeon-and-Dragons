@@ -1,0 +1,18 @@
+Continued from [[Session 7]].
+
+## Battle in the Vaults
+Picking up immediately after the appearance of the colossal skeletal horror, the party engaged in a desperate battle. The creature proved to be a formidable foe, using a magical gaze to charm [[Luffy Longfinger]], turning the rogue against his allies. While [[Borgemir Plainsrunner]] withstood the creature's physical assaults, [[Caelum Aequoris]] utilized *Heat Metal* on hooks embedded in the skeleton's bones to create a vulnerability. The battle escalated when the room locked down and filled with poisonous gas, followed by the appearance of a second skeletal horror—which the party eventually deduced was an illusion.
+
+With **Caelum** knocked unconscious by the onslaught, **Luffy** used his mysterious Jack-in-the-box, summoning a spectral serpent. **Borgemir**, fighting through the poison, managed to shove the skeleton into the gas vent to plug it, buying them time. Free from the charm, **Luffy** and his spectral serpent delivered the killing blow, shattering the horror. **Luffy** then used the bones to permanently plug the vents, clearing the air. Reviving **Caelum** and looting the fallen guards for antidotes, the group prepared to leave. **Caelum** used a *Scroll of Disguise Self* to appear as a guard, while **Luffy** hid **Symph** under his cloak.
+
+## The Great Escape
+Returning to the main hall of [[The Mirage]], the group executed a tense exit strategy. **Borgemir** created a distraction by chatting up a guard, allowing **Caelum** to walk out the front door unchallenged with the magical creature. Once outside, **Caelum** retreated to safety to secure **Symph**.
+
+However, **Borgemir** and **Luffy**, not content with leaving empty-handed, returned to the upper floors to finish searching [[Milton Pennywise]]'s office. They infiltrated the staff area, but their presence drew the suspicion of [[Arianna]]. Inside the office, **Luffy** found a crucial shipping order hidden in a ledger. It detailed that a regular caravan shipment had been postponed for six days and would depart from a warehouse in the **Forest Way** district, noting "difficulty in getting information" as the cause for delay.
+
+Before they could slip away, **Arianna** returned with guards. **Borgemir** barricaded the door with a desk and bookshelf, but they were trapped. In a chaotic sequence, **Luffy** threw alchemical fire into the room to cover their tracks and create a distraction, setting the office ablaze before climbing out the window. **Borgemir** used a *Scroll of Anything* to teleport, ending up on the roof of the manor.
+
+## Chase and Aftermath
+While **Luffy** escaped into the shadows of the city, **Borgemir** attempted a daring leap from the roof onto a patrolling guard. The landing was clumsy, shattering his disguise and leading to a frantic chase through the streets of **[[Ashenknots]]**. After a brawl in an alleyway and narrowly avoiding being surrounded by the city watch, the paladin managed to lose his pursuers in the crowd, though he lost his shield in the process.
+
+The party eventually reconvened at **Caelum**'s home. They shared the intelligence regarding the delayed caravan and rested, recovering from their wounds. The experience emboldened them, unlocking new abilities: **Borgemir** gained access to Oath spells like *Misty Step*, **Caelum** learned *Speak with Dead*, and **Luffy** honed his combat expertise. They agreed to lay low for the next six days, preparing to ambush the caravan mentioned in the stolen note.

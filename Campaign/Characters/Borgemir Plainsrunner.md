@@ -1,0 +1,9 @@
+[*Character Sheet*][https://docs.google.com/spreadsheets/d/1NyK5_D2Ff-lNJNGpF9j3uFYKClVldOz5FSinTlS75Nc/edit?usp=sharing] - *Dwarf Paladin*
+
+Borgemir Plainsrunner was born and raised in the local town of [[Kneethistle]]. He is the son of two religious farmers, [[Kirimir]] and [[Toromir|Toromir]]. From an early age [[Borgemir Plainsrunner]] was raised and home schooled by his parents on their farm, where he learned the good deeds of the Radiant Flame and how to take care of the animals and crops. 
+
+During a visit to [[Sutton]], borgemir visited the local church to try and lift his curse that was put upon him. The priests agreed and performed a ritual to lift the curse. During this ritual **Borgemir** once again saw the memories of that night flicker through his head, but compared to the normally cloudy and unfocused images, he instead saw clear vivid images. From his hiding space under the bed, he could now clearly hear the bloody scream of his mother in the other room, and after a short while frozen in fear under the bed, he now instead of a silhouette, saw what looked like a short bulky man. The man was covered in blood spatters, which were scattered all over a velvet suit. His hands bore a dark red colour, from the immense amount of blood that covered them. As he approached the bed, **Borgemir** looking at the hands noticed how each fingernail where unnaturally long and sharp as if they where 10 small knifes plastered on his fingers. When he got to the bed, he crouched, and **Borgemir**'s face was met with a white wooden mask, carved into the shape of a bear.
+
+Despite all this effort, Borgemirs connection with the flame has not yet been resolved as the curse still had a grip on him
+
+![[Borgemir Planesrunner 2.png]]

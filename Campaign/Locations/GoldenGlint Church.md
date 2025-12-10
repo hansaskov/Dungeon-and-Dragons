@@ -1,0 +1,1 @@
+The main church of [[Everbrook]], located at most south-west corner of the city. It is heavily secured by guards and holds some of the most powerful priests known of the city.  

@@ -1,0 +1,1 @@
+ 5 dragons flew over [[Everbrook]] and landed in front of the [[GoldenGlint Church]], one larger dragon named [[Sevron]] accompanied by 4 lesser dragons. The largest of the dragons were carrying something on its back, but before anyone can get a good look the dragon transforms into a middle-aged man, human-like but with scales on his head and body. 

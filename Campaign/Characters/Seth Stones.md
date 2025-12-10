@@ -1,0 +1,1 @@
+![[Seth Stones.png]]
