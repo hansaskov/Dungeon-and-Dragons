@@ -6,4 +6,9 @@ During a visit to [[Sutton]], borgemir visited the local church to try and lift 
 
 Despite all this effort, Borgemirs connection with the flame has not yet been resolved as the curse still had a grip on him
 
+Allergies: 
+- Bees and wasps
+
+Core memories: 
+- Fishing trip with his father, where they would catch fish using bait and their feet. 
 ![[Borgemir Planesrunner 2.png]]

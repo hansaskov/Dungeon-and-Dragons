@@ -22,7 +22,7 @@ Cell 14:
 
 
 Missions: 
-- Cell 1 - Find [[Harold Jamish]]
+- Cell 1 - Find [[Harold Jamish (deceased)]]
 - Cell 5 - Mission Church infiltration
 - Cell 14 - Kill Basilisks and Displacer beasts
 

@@ -26,7 +26,7 @@ The process is still rather unstable, so the
 result fluctuates alot. Main factors seem to  
 be Willpower and strenght.
 
-Further reserch is required before  
+Further research is required before  
 satesfactory goals are met.
 
 Wolf

@@ -1,0 +1,22 @@
+Continued from [[Session 16]].
+## The memorial
+After getting paid the party finds a bathhouse, where they scam the employees into thinking that [[Caelum Aequoris]] is a famous musician which gives them a much cheaper experience and lots of free drinks and food. Thereafter they returned to [[Embers Complex]] where they met up with the rest of the [[Truth Breakers]] and held a memorial for [[Harold Jamish (deceased)]]. **Flint** holds a short speech about how he was an old friend, and had helped him out of many dangers during his time as a soldier fighting [[The Empire]]. He mentions how even though the [[Guardian dragons]] where using, and manipulating the [[Radiant Flame]], he still hoped that [[Aurion]]'s light could guide him to his next reincarnation.
+**Valarie** mentions how she still had stuff to teach him, and that he broke their agreement on not being an idiot and going to die.
+**Nyla** does not hold a speech, but simply stays in the back with [[Symph]] who is a bit confused about the situation, since he sees this as simply a part of life for most people, but respects the ceremony and does not play around.
+**Seth** only says "I wish your next life is good".
+**Brother Kelvic** holds a short ceremony to guide his soul towards the light of the next life.  
+[[Borgemir Plainsrunner]] holds are inspiring speech, to get revenge on the vampires and to keep fighting, also he is very good looking. 
+
+After the memorial, the party takes a rest and [[Borgemir Plainsrunner]] finds [[Valarie River]] to talk. They share a drink and talk about her past with [[Harold Jamish (deceased)]]. **Borgemir** shares that he is there for her, and she seemed very happy about that. The day after, the party meets up with **Flint**, who states that **Nyla** and Flint **have** found that more caravans are leaving out though the **EggGate** and **Blacksoul gates**, but they have all been guarded well so they can't confirm the contents yet. and that **Cell 14** had seen that the caravans at [[BlackSoul]] was placed mainly on ships owned by the **[[BlueCross Guild]]**. The party shared their findings in the sewers and the service elevator entrance. **Flint** states that he will have someone check it out.
+They are then given a day off, since they have been working non-stop since they joined.
+
+### Day off
+For their day off, the party enters [[CloudRing]] to shop a bit. They go and get [[Borgemir Plainsrunner]]'s hammer, and [[Luffy Longfinger]] tries to have the **Otygh** leather made into a armour, which might be ready after a day.  [[Caelum Aequoris]] tries to get his crossbow fixed, first through mending it then by finding someone who could fix it, but he was unable to find a good price for fixing it so it remained broken. The Party then tries to find a black market in town, so **Borgemir** could get his weapon coated in poison. [[Luffy Longfinger]] being from the more shady side of town in the last couple of years knows a place, and they head to [[ForrestWay]] where **Luffy** shows them a small back-alley black market. Here [[Borgemir Plainsrunner]] is scammed when he learns how to poison his weapon, and [[Caelum Aequoris]] find a tinkerer who can modify his crossbow for 30G. 
+After the market, it was time for the group to enter the tournament, but on their way [[Caelum Aequoris]] spots [[Gaelana]] walking on the bridge towards them, she seems sad, but does now spot them. Much to the rest of the party's surprise, he decides not to interact with her as he is ashamed of how they ended things at [[The Mirage]].
+
+### The Tournament
+They head towards [[The floating chair]]. When they enter the tavern there are a few people drinking and the barkeep takes notice of them. Due to their disguise, he does not recognise them. They state who they are and are told that they are written down as **[[The drunken Gamblers]]**. The barkeep then steps on a small pressure plate and a large hatch in the floor reveals a hidden staircase. When walking down they can quickly hear the noise of patrons yelling and music playing.
+
+They enter a large wooden circular room, with a large pit in the middle lit up by a good amount of torches. Within the pit are an owlbear and a group of two men fighting each other. There are around 40 people here, with a good mix of waitresses dancers and patrons. They spot **[[Thorim Daybreaker]]** who looks to be handling groups of people who are gambling on the fights.
+
+Which is where the session ends.

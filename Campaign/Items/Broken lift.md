@@ -1,0 +1,2 @@
+- Missing handle
+- Broken Gear. 
